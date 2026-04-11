@@ -1,16 +1,13 @@
 ---
 layout: page
-title: About me
-subtitle: Why you'd want to go on a date with me
+title: About
+subtitle: .✦ ݁˖¿De qué trata esta web?.✦ ݁˖
 ---
+⊹₊˚‧︵‿₊୨¡Hola!୧₊‿︵‧˚₊⊹
 
-My name is Inigo Montoya. I have the following qualities:
+La idea de este jardín es compartir cosas que me gustan e intentar conectar con otras personas que me inviten a vistar sus jardines, aunque uso principalment para que mi novio vea todo lo que le quiero compartir y tener a la mano mis cosas favoritas.
 
-- I rock a great mustache
-- I'm extremely loyal to my family
+✦ Hecho con amor.
+✦ Espacio libre de IA.
 
-What else do you need?
 
-### My story
-
-To be honest, I'm having some trouble remembering right now, so why don't you just watch [my movie](https://en.wikipedia.org/wiki/The_Princess_Bride_%28film%29) and it will answer **all** your questions.
