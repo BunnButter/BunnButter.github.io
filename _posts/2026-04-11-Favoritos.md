@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Muro de noticias
+title: Este será un post semanal
 subtitle: Te comparto algo semanalmente ‎♡
 cover-img: /assets/img/cover.jfif
 thumbnail-img: /assets/gif/news.gif
@@ -9,7 +9,7 @@ tags: [books, test]
 author: BunnButter
 ---
 
-Publicaré actualizaciones temporales aquí "૮₍ ˶•⤙•˶ ₎ა
+Publicaré actualizaciones periódicas aquí "૮₍ ˶•⤙•˶ ₎ა
 
 
 Aquí irá algo interesante :)
