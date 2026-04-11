@@ -116,7 +116,7 @@ hover-col: "#0085A1"
 #navbar-col: "#EAEAEA"
 navbar-text-col: "#FFFFFF"
 navbar-border-col: "#DDDDDD"
-footer-col: "#EAEAEA"
+#footer-col: "#EAEAEA"
 footer-text-col: "#777777"
 footer-link-col: "#404040"
 footer-hover-col: "#0085A1"
@@ -124,7 +124,7 @@ footer-hover-col: "#0085A1"
 # instead of colour
 
 navbar-img: "/assets/img/navbar.jfif"
-#footer-img: "/assets/img/bgimage.png"
+footer-img: "/assets/img/bgimage.jfif"
 #page-img: "/assets/img/bgimage.png"
 
 # Suggest a colour for mobile browsers to use as the browser's theme. This is only supported by a few mobile browsers.
