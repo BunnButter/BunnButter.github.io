@@ -1,1 +1,7 @@
+¡Reviews de libros, discusiones e intercambio!
 
+<div class="idc-box">
+  <p class="idc-titulo">Índice de libros｡𖦹°‧⭑.ᐟ</p>
+  <ul class="idc-lista"> 
+    <li><a href="#indice1">˚₊‧꒰ა  YOU  ໒꒱ ‧₊˚</a> 
+</ul>
