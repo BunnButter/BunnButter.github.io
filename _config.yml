@@ -11,7 +11,7 @@ author: BunnButter
 
 navbar-links:
   About: "aboutme"
-  Newsletter: "newsletter"
+  #Newsletter: "newsletter"
   #Resources:
    # - Beautiful Jekyll: "https://beautifuljekyll.com"
    # - Learn markdown: "https://www.markdowntutorial.com/"
@@ -117,8 +117,8 @@ hover-col: "#0085A1"
 navbar-text-col: "#FFFFFF"
 navbar-border-col: "#DDDDDD"
 #footer-col: "#EAEAEA"
-footer-text-col: "#777777"
-footer-link-col: "#404040"
+footer-text-col: "#FFFFFF"
+footer-link-col: "#EBEBEB"
 #footer-hover-col: "#0085A1"
 
 # instead of colour
