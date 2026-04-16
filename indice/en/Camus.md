@@ -10,7 +10,7 @@ author: BunnButter
 ---
 ### ¿Quién fue?
 
-Albert Camus fue un filósofo, novelista y ensayista francés. Es mayormente reconocido por su filosofía absurdista y su ensayo "El mito de sísifo" (Sí, de ahí salió la quote de *"Imaginate a Sísifo feliz"*).
+Albert Camus fue un filósofo, novelista y ensayista francés. Es mayormente reconocido por su filosofía absurdista y su ensayo "El mito de sísifo" (Sí, de ahí salió la quote de *"Imagínate a Sísifo feliz"*).
 
 Según Camus, él era ajeno al existencialismo francés, pero con el tiempo se le puso en el mismo saco que a Sartre.
 Él, como muchos *existencialistas*, rechazan la etiqueta de nihilistas, aunque el absurdismo rescate algunas ideas del nihilismo.
