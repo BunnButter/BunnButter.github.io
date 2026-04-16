@@ -1,0 +1,44 @@
+---
+layout: post
+title: Albert Camus  (1913-1960)
+subtitle: Filósofo, novelista y ensayista.
+cover-img: /assets/img/cover.jfif
+thumbnail-img: /assets/img/cover.gif
+share-img: /assets/img/path.jpg
+tags: [books, people]
+author: BunnButter
+---
+### ¿Quién fue?
+
+Albert Camus fue un filósofo, novelista y ensayista francés. Es mayormente reconocido por su filosofía absurdista y su ensayo "El mito de sísifo" (Sí, de ahí salió la quote de *"Imaginate a Sísifo feliz"*).
+
+Según Camus, él era ajeno al existencialismo francés, pero con el tiempo se le puso en el mismo saco que a Sartre.
+Él, como muchos *existencialistas*, rechazan la etiqueta de nihilistas, aunque el absurdismo rescate algunas ideas del nihilismo.
+
+A demás de ser escritor, también fue partícipe de la resistencia francesa durante la ocupación alemana (esto es importante para después).
+
+### Absurdismo
+
+En principio, ser una absurdista implica aceptar que la vida no tiene *sentido* (En el contexto de no tener un significado universal que nos una a los humanos),
+Camus explica que cuando el humano busca un propósito superior existencia, termina conflictuado con el sin sentido del mundo, a este conflicto le llama el *Absurdo*.
+
+Suena a algo que un adolescente *edgy* que malinterpretó a Nietzche diría, pero es un poco más complejo que eso.
+La forma más fácil de explicar esta filosofía (y mi interpretación de la misma, claro) es "Nada importa, y por eso soy libre".Esta sigue siendo una explicación muy superficial, déjenme profundizar más.
+Buscarle un sentido a la vida implica buscarle un sentido al dolor, cuando no lo encontramos, el "Absurdo" se convierte en algo insoportable, algo que tenemos que negar, de ahí que esté la idea de que necesitas tener una religión para ser feliz (y en mi opinion
+tambien es la razón de porqué las personas religiosas suelen reportarse ser más felices).
+"aquí irá la quote de marx"
+Bueno, el punto es que, cuando una religiosa deja de creer en Dios, pierde el sentido de la vida. Cuando eres religioso crees que fuiste creado por una razón y eres parte de un plan más grande, a demás de que, al final puedes ser "eterno" después de morir.
+Si nadie te creo, no tienes un propósito inherente. La idea de "tienes que buscar tu propósito de vida" nos deja un vacío. Si decidimos que nuestro propósito es, por ejemplo, ser médico, este no es un propósito trascendente (nadie te creo para eso, entonces no es la razón por la que existes), sigues sin tener un porqué
+de tu dolor y de tus experiencias. Ser médico es un objetivo, no puede reemplazar la necesidad de trascendencia de las personas.
+
+Bueno, Camus propone que dejemos de buscar un propósito, porque mientras no aceptemos el absurdo no podremos ser felices.
+Que no existas por una razón es liberador, puedes ser lo que sea, no importa. Al final solo tienes tus experiencias y no hay nada que tengas que ser, eres libre de elegir.
+
+El problema es que la aceptación de el sinsentido de la vida lleva al nihilismo, si nada tiene sentido, ¿para qué hago cualquier cosa?¿Qué me detiene de volverme cruel si nada tiene un valor inherente?. Si Camus tomó un rol en la resitencia francesa, claramente él percibía el valor de las cosas.
+De hecho, Camus explora esta idea en los títulos de "Calígula" y "El Extranjero", ¿qué pasaría si aceptarámos nuestra carencia de sentido?. 
+
+Pero para resumir las ideas expuestas en esos libros, al final somos humanos, no podemos evitar sentir incentidumbre y miedo, no podemos evitar sentir impotencia ante el dolor ajeno... entonces, ¿podemos realmente aceptar el absurdo?.
+Podemos enfrentarnos a él, podemos empatizar con los demás. Al final **todos** nos estamos enfrentando a lo absurdo juntos, podemos hacer nuestro pesar más ligero si entendemos que no estamos solos, hay amor, experiencias y sentimientos que solo tenemos la oportunidad de experimentar durante un corto tiempo. No tenemos porqué ser crueles
+cuando estamos comunitariamente atrapados en un mundo sin sentido y solo intentamos aprovechar todo el tiempo que nos queda.
+
+Esto es solo mi interpretación con base a lo que he leído, pero 
