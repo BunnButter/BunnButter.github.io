@@ -47,6 +47,6 @@ Esto es solo mi interpretación con base a lo que he leído, pero obviamente pue
 ### Referencias
 
 - Camus, A. (1942) *El mito de Sísifo*
-- Marx, K. (1844) *Contribución a la crítica de la Filosofía del Deecho de Hegel*. Este texto ya es de dominio público, lo encuentran gratis donde sea!
+- Marx, K. (1844) *Contribución a la crítica de la Filosofía del Derecho de Hegel*. Este texto ya es de dominio público, lo encuentran gratis donde sea!
 - Wikipedia (sí, wikipedia ya es más confiable). Fecha de consulta: 16/04/2025. https://es.wikipedia.org/wiki/Albert_Camus
 
