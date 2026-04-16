@@ -1,5 +1,5 @@
 ---
-layout: page
+layout: post
 title: Calígula
 subtitle: Calígula, de Albert Camus
 permalink: /indice/bib/caligula/
