@@ -19,13 +19,12 @@ A demás de ser escritor, también fue partícipe de la resistencia francesa dur
 
 ### Absurdismo
 
-En principio, ser una absurdista implica aceptar que la vida no tiene *sentido* (En el contexto de no tener un significado universal que nos una a los humanos),
-Camus explica que cuando el humano busca un propósito superior existencia, termina conflictuado con el sin sentido del mundo, a este conflicto le llama el *Absurdo*.
+En principio, ser un absurdista implica aceptar que la vida no tiene *sentido* (En el contexto de no tener un significado universal que nos una a todos los humanos),
+Camus explica que cuando el humano busca un propósito superior a su existencia, termina conflictuado con el sin sentido del mundo, a este conflicto le llama el *Absurdo*.
 
 Suena a algo que un adolescente *edgy* que malinterpretó a Nietzche diría, pero es un poco más complejo que eso.
-La forma más fácil de explicar esta filosofía (y mi interpretación de la misma, claro) es "Nada importa, y por eso soy libre". Esta sigue siendo una explicación muy superficial, déjenme profundizar más.
-Buscarle un sentido a la vida implica buscarle un sentido al dolor, cuando no lo encontramos, el "Absurdo" se convierte en algo insoportable, algo que tenemos que negar, de ahí que esté la idea de que necesitas tener una religión para ser feliz (y en mi opinion
-tambien es la razón de porqué las personas religiosas suelen reportarse ser más felices).
+La forma más fácil de explicar esta filosofía (y mi interpretación de la misma, claro) es "Nada importa, y por eso soy libre". Pero esta sigue siendo una explicación muy superficial, déjenme profundizar más.
+Buscarle un sentido a la vida implica buscarle un sentido al dolor, cuando no lo encontramos, el "Absurdo" se convierte en algo insoportable, algo que tenemos que negar, de ahí que esté la idea de que necesitas tener una religión para ser feliz (y en mi opinion, tambien puede ser la razón de porqué las personas religiosas suelen reportarse ser más felices).
 
 *"El sufrimiento religioso es a la vez la expresión del sufrimiento real y una protesta contra el sufrimiento real. La religión es el suspiro de una criatura oprimida, el corazón de un mundo sin corazón..."* (Karl Marx)
 
@@ -33,7 +32,7 @@ El punto es que, cuando una persona religiosa deja de creer en Dios, pierde el s
 Si nadie te creó, no tienes un propósito inherente, entonces la idea de "tienes que buscar tu propósito de vida" nos deja un vacío. Si decidimos que nuestro propósito es, por ejemplo, ser médico, este no es un propósito trascendente (nadie te creo para eso, entonces no es la razón por la que existes), sigues sin tener un porqué de tu dolor y de tus experiencias. Ser médico es un objetivo, no puede reemplazar la necesidad de trascendencia de las personas.
 
 Bueno, Camus propone que dejemos de buscar un propósito, porque mientras no aceptemos el absurdo no podremos ser felices.
-Que no existas por una razón es liberador, puedes ser lo que sea, no importa. Al final solo tienes tus experiencias y no hay nada que tengas que ser, eres libre de elegir.
+El no existir por una razón es liberador, puedes ser lo que sea, no importa. Al final solo tienes tus experiencias y no hay nada que tengas que ser, eres libre de elegir.
 
 El problema es que la aceptación de el sinsentido de la vida lleva al nihilismo, si nada tiene sentido, ¿para qué hago cualquier cosa?¿Qué me detiene de volverme cruel si nada tiene un valor inherente?. Si Camus tomó un rol en la resitencia francesa, claramente él percibía el valor de las cosas.
 De hecho, Camus explora esta idea en los títulos de "Calígula" y "El Extranjero", ¿qué pasaría si aceptarámos nuestra carencia de sentido?. 
