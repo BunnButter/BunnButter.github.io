@@ -2,7 +2,7 @@
 layout: page
 title: Albert Camus  (1913-1960)
 subtitle: Filósofo, novelista y ensayista.
-permalink: /indice/en/caligula/
+permalink: /indice/bib/caligula/
 ---
 
 Calígula es una obra de teatro compuesta por 4 actos, fue escrita por [Albert Camus](/indice/en/2026-04-16-camus/) y publicada 1944. Cuenta una historia ficticia del emperador romano Calígula que pierde la razón después de la muerte de su hermana y amante.
