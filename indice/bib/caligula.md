@@ -2,6 +2,7 @@
 layout: post
 title: Calígula
 subtitle: Calígula, de Albert Camus
+cover-img: /assets/img/cover.jfif
 permalink: /indice/bib/caligula/
 ---
 
