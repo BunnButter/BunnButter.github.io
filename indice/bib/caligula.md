@@ -1,12 +1,5 @@
 ---
 layout: page
-title: Calígula 
-subtitle: Albert Camus
-author: BunnButter
-permalink: /indice/en/2026-04-16-camus/
----
----
-layout: page
 title: Albert Camus  (1913-1960)
 subtitle: Filósofo, novelista y ensayista.
 permalink: /indice/en/caligula/
