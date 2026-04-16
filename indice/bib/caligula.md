@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Albert Camus  (1913-1960)
-subtitle: Filósofo, novelista y ensayista.
+title: Calígula
+subtitle: Calígula, de Albert Camus
 permalink: /indice/bib/caligula/
 ---
 
