@@ -23,13 +23,14 @@ En principio, ser una absurdista implica aceptar que la vida no tiene *sentido* 
 Camus explica que cuando el humano busca un propósito superior existencia, termina conflictuado con el sin sentido del mundo, a este conflicto le llama el *Absurdo*.
 
 Suena a algo que un adolescente *edgy* que malinterpretó a Nietzche diría, pero es un poco más complejo que eso.
-La forma más fácil de explicar esta filosofía (y mi interpretación de la misma, claro) es "Nada importa, y por eso soy libre".Esta sigue siendo una explicación muy superficial, déjenme profundizar más.
+La forma más fácil de explicar esta filosofía (y mi interpretación de la misma, claro) es "Nada importa, y por eso soy libre". Esta sigue siendo una explicación muy superficial, déjenme profundizar más.
 Buscarle un sentido a la vida implica buscarle un sentido al dolor, cuando no lo encontramos, el "Absurdo" se convierte en algo insoportable, algo que tenemos que negar, de ahí que esté la idea de que necesitas tener una religión para ser feliz (y en mi opinion
 tambien es la razón de porqué las personas religiosas suelen reportarse ser más felices).
-"aquí irá la quote de marx"
-Bueno, el punto es que, cuando una religiosa deja de creer en Dios, pierde el sentido de la vida. Cuando eres religioso crees que fuiste creado por una razón y eres parte de un plan más grande, a demás de que, al final puedes ser "eterno" después de morir.
-Si nadie te creo, no tienes un propósito inherente. La idea de "tienes que buscar tu propósito de vida" nos deja un vacío. Si decidimos que nuestro propósito es, por ejemplo, ser médico, este no es un propósito trascendente (nadie te creo para eso, entonces no es la razón por la que existes), sigues sin tener un porqué
-de tu dolor y de tus experiencias. Ser médico es un objetivo, no puede reemplazar la necesidad de trascendencia de las personas.
+
+*"El sufrimiento religioso es a la vez la expresión del sufrimiento real y una protesta contra el sufrimiento real. La religión es el suspiro de una criatura oprimida, el corazón de un mundo sin corazón..."* (Karl Marx)
+
+El punto es que, cuando una persona religiosa deja de creer en Dios, pierde el sentido de la vida. Cuando eres religioso crees que fuiste creado por una razón y eres parte de un plan más grande, a demás de que puedes ser "eterno" después de morir.
+Si nadie te creó, no tienes un propósito inherente, entonces la idea de "tienes que buscar tu propósito de vida" nos deja un vacío. Si decidimos que nuestro propósito es, por ejemplo, ser médico, este no es un propósito trascendente (nadie te creo para eso, entonces no es la razón por la que existes), sigues sin tener un porqué de tu dolor y de tus experiencias. Ser médico es un objetivo, no puede reemplazar la necesidad de trascendencia de las personas.
 
 Bueno, Camus propone que dejemos de buscar un propósito, porque mientras no aceptemos el absurdo no podremos ser felices.
 Que no existas por una razón es liberador, puedes ser lo que sea, no importa. Al final solo tienes tus experiencias y no hay nada que tengas que ser, eres libre de elegir.
@@ -41,4 +42,11 @@ Pero para resumir las ideas expuestas en esos libros, al final somos humanos, no
 Podemos enfrentarnos a él, podemos empatizar con los demás. Al final **todos** nos estamos enfrentando a lo absurdo juntos, podemos hacer nuestro pesar más ligero si entendemos que no estamos solos, hay amor, experiencias y sentimientos que solo tenemos la oportunidad de experimentar durante un corto tiempo. No tenemos porqué ser crueles
 cuando estamos comunitariamente atrapados en un mundo sin sentido y solo intentamos aprovechar todo el tiempo que nos queda.
 
-Esto es solo mi interpretación con base a lo que he leído, pero 
+Esto es solo mi interpretación con base a lo que he leído, pero obviamente puedo estar equivocada.
+
+### Referencias
+
+- Camus, A. (1942) *El mito de Sísifo*
+- Marx, K. (1844) *Contribución a la crítica de la Filosofía del Deecho de Hegel*. Este texto ya es de dominio público, lo encuentran gratis donde sea!
+- Wikipedia (sí, wikipedia ya es más confiable). Fecha de consulta: 16/04/2025. https://es.wikipedia.org/wiki/Albert_Camus
+
