@@ -34,6 +34,18 @@ Miss World es un tanto más depresiva que otras canciones del disco. Aunque cual
 
 Bueno, si te sientes deprimida, presionada e invalidada, esta canción es para ti.
 
+### Plump
+
+Courtney escribió esta canción inspirandose en su experiencia con la maternidad. No puedo comentar mucho de experiencia propia, pero creo que la mejor forma de entenderla es escuchando su historia. Courtney dio a luz a Frances Bean Cobain en 1992, no fue en las mejores condiciones, tanto ella como Kurt estaban completamente sumergidos en su adicción a la heroina (aunque Courtney dice que no consumió drogas durante el embarazo, Kurt sí consumía heroina regularmente).
+
+Obviamente Frances no estaba en luegar seguro 
+
+### Asking for it
+
+### Jennifer's body
+
+
+
 
 
 
