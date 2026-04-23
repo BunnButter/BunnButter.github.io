@@ -36,11 +36,20 @@ Bueno, si te sientes deprimida, presionada e invalidada, esta canción es para t
 
 ### Plump
 
-Courtney escribió esta canción inspirandose en su experiencia con la maternidad. No puedo comentar mucho de experiencia propia, pero creo que la mejor forma de entenderla es escuchando su historia. Courtney dio a luz a Frances Bean Cobain en 1992, no fue en las mejores condiciones, tanto ella como Kurt estaban completamente sumergidos en su adicción a la heroina (aunque Courtney dice que no consumió drogas durante el embarazo, Kurt sí consumía heroina regularmente).
+Courtney escribió esta canción inspirandose en su experiencia con la maternidad. No puedo comentar mucho de experiencia propia, pero creo que la mejor forma de entenderla es escuchando su historia. Courtney dio a luz a Frances Bean Cobain en 1992, no fue en las mejores condiciones, tanto ella como Kurt estaban sumergidos en su adicción a la heroina (aunque Courtney dice que no consumió drogas durante el embarazo, Kurt sí consumía heroina regularmente).
 
-Obviamente Frances no estaba en luegar seguro 
+Dos semanas después del nacimiento de Frances sus padres perdieron su custodia, solo estuvieron separados un corto tiempo pues la ivestigación de servicios de protección infantil fue desestimada y Frances pudo regresar con sus padres.
+
+Esta etapa de la vida de Courtney fue muy dificil, los medios siempre fueron muy críticos con ella y en ese momento lo estabn siendo aún más, críticandola por ser "mala" madre (ninguna de esas críticas iban para Kurt aunque era literalmente un DROGADICTO). En Plump se nos comparte como Courtney vivió esta etapa de adaptación a la maternidad y la presión que estaba recibiendo por todos los medios públicos.
+
 
 ### Asking for it
+
+Esta es una de esas canciones que su significado es explícito, pero igual creo que vale la pena comentar sobre algunas de las letras.
+
+Como dato, Courtney trabajaba como *stripper* antes de que Hole fuera conformado - "Every time that I sell myself to you I feel a little bit cheaper than I need to". - Y, bajo mi interpretación, esta canción tiene mucho que ver con esta parte, no creo que solo sea de esta experiencia, si no de todas las experiencias en las que se sintió objetificada.
+
+Ya como opinión personal, DIOS AMO ESTA CANCIÓN, siento que resume perfectamente la experiencia de ser violentada y objetificada. Me siento tan escuchada y comprendida gfdsasgd TE AMO COURTNEY.
 
 ### Jennifer's body
 
