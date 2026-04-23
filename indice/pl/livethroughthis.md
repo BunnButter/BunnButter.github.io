@@ -43,15 +43,26 @@ Dos semanas después del nacimiento de Frances sus padres perdieron su custodia,
 Esta etapa de la vida de Courtney fue muy dificil, los medios siempre fueron muy críticos con ella y en ese momento lo estabn siendo aún más, críticandola por ser "mala" madre (ninguna de esas críticas iban para Kurt aunque era literalmente un DROGADICTO). En Plump se nos comparte como Courtney vivió esta etapa de adaptación a la maternidad y la presión que estaba recibiendo por todos los medios públicos.
 
 
-### Asking for it
+### Asking for  - Jennifer's Body
 
-Esta es una de esas canciones que su significado es explícito, pero igual creo que vale la pena comentar sobre algunas de las letras.
+Puse estas canciones juntas porque tienen la misma temática, a demás de que creo que su significado es explícito, pero igual creo que vale la pena comentar sobre algunas de las letras.
 
-Como dato, Courtney trabajaba como *stripper* antes de que Hole fuera conformado - "Every time that I sell myself to you I feel a little bit cheaper than I need to". - Y, bajo mi interpretación, esta canción tiene mucho que ver con esta parte, no creo que solo sea de esta experiencia, si no de todas las experiencias en las que se sintió objetificada.
+Como dato, Courtney trabajaba como *stripper* antes de que Hole fuera conformado - "Every time that I sell myself to you I feel a little bit cheaper than I need to". - Y, bajo mi interpretación, Asking for it tiene mucho que ver con esta parte de la vida de Courtney, no creo que solo sea de esta experiencia, si no de todas las experiencias en las que se sintió objetificada.
 
 Ya como opinión personal, DIOS AMO ESTA CANCIÓN, siento que resume perfectamente la experiencia de ser violentada y objetificada. Me siento tan escuchada y comprendida gfdsasgd TE AMO COURTNEY.
 
-### Jennifer's body
+No tengo mucho que decir sobre Jennifer's Body... No conecté tanto con la canción, puede simplemente ser tema personal porque no tengo ninguna crítica objetiva a la forma en la que se expone el concepto en la letra.
+
+### Doll Parts
+
+Doll Parts también habla sobre ser objetificada, pero quería darle una sección individual porque es mi canción favorita del disco (Y MI CANCIÓN FAVORITA EN EL MUNDO TE AMO COURTNEY).
+
+No he podido dejar de escuchar Doll Parts desde que la descubrí hace 5 años, nunca he podido explicar del todo porqué me obsesiona tanto esta canción, pero estoy dispuesta a intentarlo ahora.
+
+La letra expresa cierto resentimiento a la violencia sistemática (así es, sistemática) que ha vivido Courtney a causa de los hombres. Además del resentimiento también se nota un tono de resignación y creo que esto es lo que hace que Doll Parts sea tan especial para mí.
+
+Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la idea de quue solo eres *"partes"* para los demás se mete en tu cabeza y te desprecias, te sientes degradada, pero, aunque hayas aceptado todo esto sigue habiendo una parte de ti que está furiosa. Esa parte nunca se irá (me proyecté, al menos en mi experiencia no se va) .
+
 
 
 
