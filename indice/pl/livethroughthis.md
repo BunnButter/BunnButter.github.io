@@ -66,7 +66,7 @@ Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la
 ### Credit on the straight world
 
 Esta canción está totalmente infravalorada, musicalmente es una de mis favoritas y la letra es imperdible.
-Courtney no era una mujer convencional, ni un poco, rompía todos los estándares, actuaba "histérica" y fue criticada por estas actitudes. Credit on the straight world es una expresión del rechazo a lo convencional y a los ideales que se presentan en los medios. Es muuuy buena canción, para todas mis neurodivergentes girls.
+Courtney no era una mujer convencional, ni un poco, rompía todos los estándares, actuaba "histérica" y fue criticada por estas actitudes. Credit on the straight world es una expresión del rechazo a lo convencional y a los ideales que se presentan en los medios. Es muuuy buena canción, para todas mis girls neurodivergentes.
 
 
 
