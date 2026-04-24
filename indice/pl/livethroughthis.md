@@ -13,8 +13,8 @@ Pero bueno, este post no es para defender a Courtney, simplemente sentí necesar
 
 ### Playlist - Live Through This
 Antes de comenzar con las reseñas, quiero aclarar que no soy una experta en cuanto a producción musical, así que mis opiniones en relación con la musicalidad son totalmente subjetivas. Lo único que puedo hacer proporcionar un poco de contexto del sonido.
-Hole fue parte de las bandas *Grunge* de los noventas, la idea del género siempre ha sido tener un sonido "sucio", guitarras distorsionadas, baterías ruidosas, con letras apáticas y, claro, no había ninguna necesidad de saber dominar teoría musical.
-A lo que voy es que es un album ruidoso, de nuevo, no puedo opinar demasiado, solo puedo decir que me encanta este género musical.
+Hole fue parte de las bandas *Grunge* de los noventas, la idea del género siempre ha sido tener un sonido "sucio", guitarras distorsionadas, baterías ruidosas, con letras apáticas y, claro, no había ninguna necesidad de saber dominar la teoría musical.
+A lo que voy es que es un album ruidoso. De nuevo, no puedo opinar demasiado, solo puedo decir que me encanta este género musical.
 
 Ahora sí, sobre lo que sí puedo hablar, las letras.
 
@@ -40,7 +40,7 @@ Courtney escribió esta canción inspirandose en su experiencia con la maternida
 
 Dos semanas después del nacimiento de Frances sus padres perdieron su custodia, solo estuvieron separados un corto tiempo pues la ivestigación de servicios de protección infantil fue desestimada y Frances pudo regresar con sus padres.
 
-Esta etapa de la vida de Courtney fue muy dificil, los medios siempre fueron muy críticos con ella y en ese momento lo estabn siendo aún más, críticandola por ser "mala" madre (ninguna de esas críticas iban para Kurt aunque era literalmente un DROGADICTO). En Plump se nos comparte como Courtney vivió esta etapa de adaptación a la maternidad y la presión que estaba recibiendo por todos los medios públicos.
+Esta etapa de la vida de Courtney fue muy dificil, los medios siempre fueron muy críticos con ella y este momento no fue la excepción, recibiendo críticas por ser "mala" madre (nadie criticaba a Kurt por ser una mal padre aunque era literalmente un DROGADICTO). En Plump se nos comparte como Courtney vivió esta etapa de adaptación a la maternidad y la presión que estaba recibiendo por todos los medios públicos.
 
 
 ### Asking for  - Jennifer's Body
@@ -70,15 +70,18 @@ Courtney no era una mujer convencional, ni un poco, rompía todos los estándare
 
 
 
-Voy a dejar las reseñas aquí, aunque aún faltan 5 canciones, tal vez las añada al post en un futuro, pero por el momento creo que ya dije todo lo que quería decir sobre el albúm.
-En el nicho del rock alternativo Courtney es muy conocida por ser la viuda de Kurt Cobain, su historia se pierde entre todas las polémicas que tuvo y la muerte de su esposo. He escuchado y leído tantas cosas horribles sobre Courtney de personas que no se han tomado el tiempo de ver el panorama completo, yo sé que ella no es la mejor persona, no estoy tratando de decir eso, lo que estoy diciendo es que los medios pintaron a una mujer loca y malvada que arrastró a su esposo a las drogas, se casó con él por fama y lo terminó asesinando. Cuando realmente era una mujer vulnerable, sin casa, adicta, quería hacer música para vivir. Conoció al amor de su vida (otro drogadicto) y se casaron, tuvieron una hija, su esposo siguó consumiendo droga aún cuando ya era padre una niña y todos en los medios la culpaban por lo que estaba pasando, su esposo tuvo una sobredosis, ella lo reanimó, lo mandó a rehabilitación y él se suicidó dejándola sola con una hija de menos de dos años.
+Aunque aún faltan 5 canciones quiero dejar las reseñas aquí, por el momento creo que ya dije todo lo que quería decir sobre el albúm.
+En el nicho del rock alternativo Courtney es muy conocida por ser la viuda de Cobain, su historia se pierde entre todas las polémicas que tuvo y la muerte de su esposo (no es un secreto que la escena del rock era extremadamente misógina). He escuchado y leído tantas cosas horribles sobre Courtney de personas que no se han tomado el tiempo de ver el panorama completo, yo sé que ella no es una persona perfecta, no estoy tratando de decir eso, lo que estoy diciendo es que los medios pintaron a una mujer loca y malvada que arrastró a su esposo a las drogas, se casó con él por fama y lo terminó asesinando. Cuando realmente era una mujer vulnerable, sin casa, adicta, que quería hacer música para vivir. Una mujer que conoció al amor de su vida (otro drogadicto) y se casó con él, tuvo una hija, su esposo siguó consumiendo droga aún cuando ya era padre de una niña y el público la culpaba por lo que estaba pasando. Su historia de amor terminó cuando su esposo tuvo una sobredosis, ella lo reanimó, lo mandó a rehabilitación y él se suicidó dejándola sola con una hija de menos de dos años.
 
-Esto que cuento no es ni la mitad de las cosas horribles que Courtney ha vivido, su vida fue muy dificil y aún así tuvo que soportar que la culparan de la muerte de el amor de su vida, no sé ustedes pero en su situación yo también me volvería errática.
+Esto que cuento no es ni la mitad de las cosas horribles que Courtney ha vivido, su vida fue muy dificil y aún así tuvo que soportar que la señalaran porque a los ojos de todos ella provocó la muerte del amor de su vida, no sé ustedes pero en su situación yo también me volvería errática.
 
-Quiero terminar diciendo que ella es una increíble compositora y cantante, también es una mujer fuerte que admiro muchísimo. Merece más que solo ser conocida como la viuda del vocalista de Nirvana.
+Quiero terminar diciendo que ella es una increíble compositora y cantante, también es una mujer fuerte que admiro muchísimo. Su música y sus ideas merecen más reconocimiento, ella merece más que solo ser conocida como la viuda del vocalista de Nirvana.
 
 En fin, aquí les dejo un video en donde Courtney le avienta algo a Madonna.
 
+<iframe width="420" height="315"
+src="https://www.youtube.com/embed/tgbNymZ7vqY">
+</iframe>
 
 
 
