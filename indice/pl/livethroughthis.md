@@ -19,7 +19,7 @@ A lo que voy es que es un album ruidoso. De nuevo, no puedo opinar demasiado, so
 
 Ahora sí, sobre lo que sí puedo hablar, las letras.
 
-#### Violet
+### Violet
 
 Esta es la canción más escuchada del album pues fue usada en el soundtrack de *Jeniffer's body*, honestamente la canción tiene la fama que se merece, entiendo perfectamente porqué es tan amada aunque no es mi favorita.
 
@@ -29,7 +29,7 @@ Violet tiene versos llenos de dolor, la música y la voz de Courtney acompañan 
 
 La temática de la canción es extremadamente obvia por lo que no la voy a entretener más en la reseña, solo voy a dejar un pedacito que me encanta de la canción:
 
-#### Miss World
+### Miss World
 
 Miss World es un tanto más depresiva que otras canciones del disco. Aunque cualquiera podría sentise identificado con el sentimiento de la obra, es muy claro que es principalmente una experiencia femenina. En el contexto cultural, tu género va a definir la forma en la que tus problemas van a ser percibidos por los demás, no es lo mismo que invaliden los sentimientos de una mujer que los de un hombre. Con esto no quiero decir que uno es peor o mejor, solo que vienen de lugares distintos; las mujeres son histéricas y los hombres deben ser fuertes.
 
@@ -71,7 +71,7 @@ Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la
 Esta canción está totalmente infravalorada, musicalmente es una de mis favoritas y la letra es imperdible.
 Courtney no era una mujer convencional, ni un poco, rompía todos los estándares, actuaba "histérica" y fue criticada por estas actitudes. Credit on the straight world es una expresión del rechazo a lo convencional y a los ideales que se presentan en los medios. Es muuuy buena canción, para todas mis girls neurodivergentes.
 
-
+### Para cerrar
 
 Aunque aún faltan 5 canciones quiero dejar las reseñas aquí, por el momento creo que ya dije todo lo que quería decir sobre el albúm.
 En el nicho del rock alternativo Courtney es muy conocida por ser la viuda de Cobain, su historia se pierde entre todas las polémicas que tuvo y la muerte de su esposo (no es un secreto que la escena del rock era extremadamente misógina). He escuchado y leído tantas cosas horribles sobre Courtney de personas que no se han tomado el tiempo de ver el panorama completo, yo sé que ella no es una persona perfecta, no estoy tratando de decir eso, lo que estoy diciendo es que los medios pintaron a una mujer loca y malvada que arrastró a su esposo a las drogas, se casó con él por fama y lo terminó asesinando. Cuando realmente era una mujer vulnerable, sin casa, adicta, que quería hacer música para vivir. Una mujer que conoció al amor de su vida (otro drogadicto) y se casó con él, tuvo una hija, su esposo siguó consumiendo droga aún cuando ya era padre de una niña y el público la culpaba por lo que estaba pasando. Su historia de amor terminó cuando su esposo tuvo una sobredosis, ella lo reanimó, lo mandó a rehabilitación y él se suicidó dejándola sola con una hija de menos de dos años.
