@@ -6,10 +6,10 @@ subtitle: Hole Album
 
 Live Through This es uno de los albums más controversiales en toda la escena del grunge. Aunque el propósito del post no es explorar toda la controversia, sí voy a dar un poco de contexto de porqué este albúm es tan icónico.
 
-Para empezar, la compositora del album fue Courtney Love (top mujeres más odiadas del rock alternativo) además de que fue lanzado 4 días después de que su esposo (Kurt Cobain) se suicidara. La casualidad de la fecha y otras actitudes de la cantante hicieron que los fans de Nirvana se convencieran de que Courtney había asesinado a Kurt. 
-Los rumores del asesinato son estúpidos y misóginos. No sé quién puede sorprenderse de que Kurt se haya suicidado, como si no hubiera escrito una canción llamada "I hate myself and want to die". Para rematar, no hay ni una sola prueba física o circunstancial de que Kurt fuera asesinado. Ya que no había pruebas que indicaran un asesinato se hizo la siguiente recapitulación de eventos: Kurt escapó de rehabilitación (por cierto, COURTNEY FUE LA QUE LO PUSO EN REHABILITACIÓN EN PRIMER LUGAR, él no quería estar ahí y sabía que su ESPOSA lo iba a mantener en rehabilitación), no le dijo a nadie, puso una pistola en su boca y disparó, , no hay más sobre el caso.
+Para empezar, la compositora del album fue Courtney Love (top mujeres más odiadas del rock alternativo) además, el album fue lanzado 4 días después de que su esposo (Kurt Cobain) se suicidara. La casualidad de la fecha, una canción que parodiaba el movimiento feminista de las *Riot Girls* y otras actitudes de la cantante, hicieron que Live Through This se ganara una reputación importante. A demás, los fans de Nirvana tomaron la casualidad de la fecha de lanzamiento para acusar a Courtney de asesinar a Kurt. 
+Los rumores del asesinato son estúpidos y misóginos. No sé quién puede sorprenderse de que Kurt se haya suicidado, como si no hubiera escrito una canción llamada "I hate myself and want to die". Para rematar la ridiculez de los rumores, no hay ni una sola prueba física o circunstancial de que Kurt fuera asesinado. Ya que no hay pruebas que indiquen un asesinato se tiene la siguiente recapitulación de eventos: Kurt escapó de rehabilitación (por cierto, COURTNEY FUE LA QUE LO PUSO EN REHABILITACIÓN EN PRIMER LUGAR, él no quería estar ahí y sabía que su ESPOSA lo iba a mantener en rehabilitación), no le dijo a nadie, puso una pistola en su boca y disparó, no hay más sobre el caso.
  
-Pero bueno, este post no es para defender a Courtney, simplemente sentí necesario mencionar todo lo que hubo detrás de la polémica. El fin de este post es reseñar algunas de las canciones de uno de mis discos favoritos, Live Through this.
+Pero bueno, este post no es para defender a Courtney, simplemente sentí necesario mencionar un poco de lo que hubo detrás de la polémica. En realidad, el fin de este post es reseñar algunas de las canciones de uno de mis discos favoritos, Live Through this.
 
 ### Playlist - Live Through This
 Antes de comenzar con las reseñas, quiero aclarar que no soy una experta en cuanto a producción musical, así que mis opiniones en relación con la musicalidad son totalmente subjetivas. Lo único que puedo hacer proporcionar un poco de contexto del sonido.
@@ -22,7 +22,7 @@ Ahora sí, sobre lo que sí puedo hablar, las letras.
 
 Esta es la canción más escuchada del album pues fue usada en el soundtrack de *Jeniffer's body*, honestamente la canción tiene la fama que se merece, entiendo perfectamente porqué es tan amada aunque no es mi favorita.
 
-Algo que se nota en todo el album es un tono de resentimiento hacia el sistema patriarcal, ahora, sé que Courtney era la mujer menos sorora del mundo y también era súper misógina. Evidentemente ella no tenía el propósito de que hacer un album feminista, pero ejemplifica y expresa perfectamente la experiencia de ser una mujer.
+Algo que se nota en todo el album es un tono de resentimiento hacia el sistema patriarcal, sin mebago, Courtney era la mujer menos sorora del mundo y también era súper misógina. Evidentemente ella no tenía el propósito de que hacer un album feminista, pero ejemplifica y expresa perfectamente la experiencia social de ser una mujer.
 
 Violet tiene versos llenos de dolor, la música y la voz de Courtney acompañan de una manera increíble el sentimiento de la canción (ptm como amo este album), ninguna palabra está fuera de lugar, ninguna frase está solo para rimar; todo lo que dice es parte de una experiencia.
 
