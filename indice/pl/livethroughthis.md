@@ -64,6 +64,8 @@ La letra expresa cierto resentimiento a la violencia sistemática (así es, sist
 
 Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la idea de que solo eres percibida como *"partes"*  se mete en tu cabeza y te desprecias, te sientes degradada, pero, aunque hayas aceptado todo esto sigue habiendo una parte de ti que está furiosa. Esa parte nunca se irá (me proyecté, al menos en mi experiencia no se va), estás resentida, estás lastimada y estás rendida.
 
+![Camus Love](/assets/img/pl/dollparts.jpg)
+
 ### Credit on the straight world
 
 Esta canción está totalmente infravalorada, musicalmente es una de mis favoritas y la letra es imperdible.
