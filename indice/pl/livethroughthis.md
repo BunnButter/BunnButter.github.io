@@ -77,11 +77,9 @@ Esto que cuento no es ni la mitad de las cosas horribles que Courtney ha vivido,
 
 Quiero terminar diciendo que ella es una increíble compositora y cantante, también es una mujer fuerte que admiro muchísimo. Su música y sus ideas merecen más reconocimiento, ella merece más que solo ser conocida como la viuda del vocalista de Nirvana.
 
-En fin, aquí les dejo un video en donde Courtney le avienta algo a Madonna.
+En fin, aquí les dejo un video en donde Courtney le avienta algo a Madonna: 
 
-<iframe width="420" height="315"
-src="https://www.youtube.com/embed/tgbNymZ7vqY">
-</iframe>
+
 
 
 
