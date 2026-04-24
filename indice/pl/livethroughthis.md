@@ -2,6 +2,7 @@
 layout: post
 title: Live Through This (1994)
 subtitle: Hole Album
+cover-img: /assets/img/pl/ltt.jpg
 ---
 
 Live Through This es uno de los albums más controversiales en toda la escena del grunge. Aunque el propósito del post no es explorar toda la controversia, sí voy a dar un poco de contexto de porqué este albúm es tan icónico.
