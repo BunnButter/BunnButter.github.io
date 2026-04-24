@@ -9,7 +9,7 @@ Live Through This es uno de los albums más controversiales en toda la escena de
 Para empezar, la compositora del album fue Courtney Love (top mujeres más odiadas del rock alternativo) además de que fue lanzado 4 días después de que su esposo (Kurt Cobain) se suicidara. La casualidad de la fecha y otras actitudes de la cantante hicieron que los fans de Nirvana se convencieran de que Courtney había asesinado a Kurt. 
 Los rumores del asesinato son estúpidos y misóginos. No sé quién puede sorprenderse de que Kurt se haya suicidado, como si no hubiera escrito una canción llamada "I hate myself and want to die". Para rematar, no hay ni una sola prueba física o circunstancial de que Kurt fuera asesinado. Ya que no había pruebas que indicaran un asesinato se hizo la siguiente recapitulación de eventos: Kurt escapó de rehabilitación (por cierto, COURTNEY FUE LA QUE LO PUSO EN REHABILITACIÓN EN PRIMER LUGAR, él no quería estar ahí y sabía que su ESPOSA lo iba a mantener en rehabilitación), no le dijo a nadie, puso una pistola en su boca y disparó, , no hay más sobre el caso.
  
-Pero bueno, este post no es para defender a Courtney, simplemente sentí necesario mencionar todo lo que hubo detrás de la polémica. El fin de este post es reseñar cada una de las canciones de uno de mis discos favoritos, Live Through this.
+Pero bueno, este post no es para defender a Courtney, simplemente sentí necesario mencionar todo lo que hubo detrás de la polémica. El fin de este post es reseñar algunas de las canciones de uno de mis discos favoritos, Live Through this.
 
 ### Playlist - Live Through This
 Antes de comenzar con las reseñas, quiero aclarar que no soy una experta en cuanto a producción musical, así que mis opiniones en relación con la musicalidad son totalmente subjetivas. Lo único que puedo hacer proporcionar un poco de contexto del sonido.
@@ -61,7 +61,28 @@ No he podido dejar de escuchar Doll Parts desde que la descubrí hace 5 años, n
 
 La letra expresa cierto resentimiento a la violencia sistemática (así es, sistemática) que ha vivido Courtney a causa de los hombres. Además del resentimiento también se nota un tono de resignación y creo que esto es lo que hace que Doll Parts sea tan especial para mí.
 
-Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la idea de quue solo eres *"partes"* para los demás se mete en tu cabeza y te desprecias, te sientes degradada, pero, aunque hayas aceptado todo esto sigue habiendo una parte de ti que está furiosa. Esa parte nunca se irá (me proyecté, al menos en mi experiencia no se va) .
+Cuando has sido violentada tantas veces la experiencia se vuelve parte de ti, la idea de que solo eres percibida como *"partes"*  se mete en tu cabeza y te desprecias, te sientes degradada, pero, aunque hayas aceptado todo esto sigue habiendo una parte de ti que está furiosa. Esa parte nunca se irá (me proyecté, al menos en mi experiencia no se va), estás resentida, estás lastimada y estás rendida.
+
+### Credit on the straight world
+
+Esta canción está totalmente infravalorada, musicalmente es una de mis favoritas y la letra es imperdible.
+Courtney no era una mujer convencional, ni un poco, rompía todos los estándares, actuaba "histérica" y fue criticada por estas actitudes. Credit on the straight world es una expresión del rechazo a lo convencional y a los ideales que se presentan en los medios. Es muuuy buena canción, para todas mis neurodivergentes girls.
+
+
+
+Voy a dejar las reseñas aquí, aunque aún faltan 5 canciones, tal vez las añada al post en un futuro, pero por el momento creo que ya dije todo lo que quería decir sobre el albúm.
+En el nicho del rock alternativo Courtney es muy conocida por ser la viuda de Kurt Cobain, su historia se pierde entre todas las polémicas que tuvo y la muerte de su esposo. He escuchado y leído tantas cosas horribles sobre Courtney de personas que no se han tomado el tiempo de ver el panorama completo, yo sé que ella no es la mejor persona, no estoy tratando de decir eso, lo que estoy diciendo es que los medios pintaron a una mujer loca y malvada que arrastró a su esposo a las drogas, se casó con él por fama y lo terminó asesinando. Cuando realmente era una mujer vulnerable, sin casa, adicta, quería hacer música para vivir. Conoció al amor de su vida (otro drogadicto) y se casaron, tuvieron una hija, su esposo siguó consumiendo droga aún cuando ya era padre una niña y todos en los medios la culpaban por lo que estaba pasando, su esposo tuvo una sobredosis, ella lo reanimó, lo mandó a rehabilitación y él se suicidó dejándola sola con una hija de menos de dos años.
+
+Esto que cuento no es ni la mitad de las cosas horribles que Courtney ha vivido, su vida fue muy dificil y aún así tuvo que soportar que la culparan de la muerte de el amor de su vida, no sé ustedes pero en su situación yo también me volvería errática.
+
+Quiero terminar diciendo que ella es una increíble compositora y cantante, también es una mujer fuerte que admiro muchísimo. Merece más que solo ser conocida como la viuda del vocalista de Nirvana.
+
+En fin, aquí les dejo un video en donde Courtney le avienta algo a Madonna.
+
+
+
+
+
 
 
 
